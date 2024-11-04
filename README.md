@@ -5,9 +5,9 @@ https://github.com/elizabeth010/Fake-bitcoin-sender/assets/78324488/4d4e5882-4dc
 The only flash software in the world 🌎😏
 Buy The Real Flash Coins💎🌉 (Base Level) Visit Website For More Levels
 
-Transferable ⭐️
-Not Splittable ⭐️ 
-All Web 3 Wallets Supported ⭐️ Stays Life Long ⭐️
+⭐Transferable 
+⭐Not Splittable 
+⭐All Web 3 Wallets Supported ⭐Stays Life Long 
 
 Website - https://t.me/allianceflashdeal
 
